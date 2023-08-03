@@ -1,0 +1,2 @@
+# telma
+Privacy Policy
